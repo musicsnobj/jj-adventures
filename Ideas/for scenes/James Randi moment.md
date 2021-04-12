@@ -1,0 +1,1 @@
+i’m envisioning one scene where [[Tallulah June Seawolf]] convinces a person like me of her cosmic gift by telling him something like: your grandfather wants you to know, you were right about climate change. and he’s very sorry for the carelessness of his generation

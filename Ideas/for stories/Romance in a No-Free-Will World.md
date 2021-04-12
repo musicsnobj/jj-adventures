@@ -1,0 +1,3 @@
+couples start embracing the idea that there’s no one single decision-making self. different brain components have different jobs and assume executive control in different situations, thus the version of you pledging vows on your wedding day is not really the same version that will be faced with the choice of getting a prostitute on a business trip in thailand. but perhaps it is possible to pledge those vows as every version of yourself. sad, happy, triumphant, angry, neutral, irritable, etc.
+
+we go through the story of how they said those same words as every version of themselves
