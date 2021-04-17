@@ -1,0 +1,1 @@
+Based on this [data scientist](https://www.youtube.com/watch?v=BeLj5DBp-84 who was fired in May for refusing to manipulate the Covid-19 numbers to paint a more “optimistic picture” of the situation in Florida.

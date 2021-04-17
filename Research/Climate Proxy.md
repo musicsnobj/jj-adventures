@@ -1,0 +1,2 @@
+[source](https://en.wikipedia.org/wiki/Proxy_(climate))
+In the study of past climates (*paleoclimatology*), climate proxies are preserved physical characteristics of the past that stand in for direct meteorological measurements and enable scientists to reconstruct the climactic conditions over a longer fraction of Earth’s history. Reliable global records of climate only began in the 1880s, and proxies provide the only means for scientists to determine climactic patterns before record-keeping began

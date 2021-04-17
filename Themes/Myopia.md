@@ -1,0 +1,1 @@
+connection b/w mental limitation on understanding evolution due to no selective advantage of thinking on an evolutionary timescale and trump devastating the economy for failure of thinking beyond the next news cycle
