@@ -14,7 +14,6 @@ but deep down in my soul i feel that everything we’ve ever seen came out of on
 
 like first none of this was here and then _bang!_ (too much?) all the building blocks of the universe blasted into existence, then some universal laws took the whole thing over and said if there’s too much stuff in one spot, it all clings togethguger in a big ball…
 
-  
 
 …and so forth
 
