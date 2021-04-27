@@ -1,0 +1,3 @@
+A BS right wing documentarian, e.g. Bannon, receives a huge anonymous GoFundMe donation, which allows them to unleash the ultimate conspiracy theory onto the world, e.g. Qanon.
+
+On the eve of the documentary's release, the donor reveals themself to the documentarist, at first congratulating the work and affirming that their donation has been well spent, then "disappearing" them, i.e. killing and vanishing them without a trace, embedding the film debut in a rich environment of intrigue, where it will surely gain a huge following of bloodthirsty nutjobs
