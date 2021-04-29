@@ -4,12 +4,12 @@
     "type": "split",
     "children": [
       {
-        "id": "b415f935700b4bb8",
+        "id": "6f4248454f39d33b",
         "type": "leaf",
         "state": {
           "type": "markdown",
           "state": {
-            "file": "Writing Tips/Making a Scene.md",
+            "file": "Characters/Ensemble 2.md",
             "mode": "source"
           }
         }
@@ -68,7 +68,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Writing Tips/Making a Scene.md",
+                "file": "Characters/Ensemble 2.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -86,17 +86,17 @@
     "width": 100,
     "collapsed": true
   },
-  "active": "b415f935700b4bb8",
+  "active": "6f4248454f39d33b",
   "lastOpenFiles": [
-    "Writing Tips/Making a Scene.md",
-    "Writing Tips/Untitled.md",
-    "Writing Tips/Dan Harmon's Story Circle.md",
-    "Writing Tips/Loglines - Save the Cat!.md",
-    "Characters/Ashley Bates.md",
-    "Research/Untitled.md",
-    "Characters/Untitled.md",
-    "Plot Devices/Untitled.md",
-    "Themes/Untitled.md",
-    "Ideas/for themes/Chess as story.md"
+    "Untitled.md",
+    "Political Journey.md",
+    "Ideas/for stories/Emporer's Alt Clothes.md",
+    "Ideas/for stories/Headlines to avoid.md",
+    "Ideas/for stories/Killer vs Suicidal Person.md",
+    "Ideas/for stories/Multi-Idiolect.md",
+    "Ideas/for stories/Romance in a No-Free-Will World.md",
+    "Ideas/for stories/Salem.md",
+    "Ideas/for stories/White Elephant.md",
+    "Ideas/for stories/We paused the arrow of time.md"
   ]
 }
