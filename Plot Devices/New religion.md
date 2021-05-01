@@ -1,0 +1,1 @@
+Religion as a construct.  Society sucks and needs a moral tweak.  Use of technology or some other aspect to "invent" a new religion that takes the good parts of all of them and leaves out the bad ones.  Acquire followers. Perform "miracles". 

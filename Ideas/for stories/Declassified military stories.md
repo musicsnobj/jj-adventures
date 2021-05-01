@@ -1,0 +1,1 @@
+Look into declassified military stories for inspiration.
