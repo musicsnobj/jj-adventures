@@ -1,4 +1,4 @@
-Programmers work for companies, but their tech skills tend to be generally higher than that of their superiors, so they can pull off shady things like programming a virus to delete all the code if i ever get fired, etc.
++Programmers work for companies, but their tech skills tend to be generally higher than that of their superiors, so they can pull off shady things like programming a virus to delete all the code if i ever get fired, etc.
 
 A terrorist. A genius programmer. Sees himself as an artist. He’s unleashed a malevolent force—maybe a bio virus, but could just be a T-1000 indestructable humanoid thing—a puzzle that no one can solve. No programmer can reverse engineer.
 
