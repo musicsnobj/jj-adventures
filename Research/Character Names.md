@@ -14,11 +14,11 @@ Sunny Delacruz
 James Trogden
 Scott Kincaid
 Bill Fred Paul
-Steve Isabelle ("'Izzy")
+Steve Isabelle ("Izzy")
 Takeshi Ei
 James Nicosia
 Joel Kane
-Rob Schmugge (pronounced "schmoo-gi")
+Robert Schmugge ("schmoo-gi")
 Vance Bryan
 Olivia Arroyos
 Jack Corlis
@@ -50,4 +50,15 @@ Shane Fitch
 Frank Erklin
 Doug Nuttman
 Chris Navitskis
-Jason Slyczuk (pronounced "sly-zuk")
+John Slyczuk ("sly-zuk")
+Kevin Houston
+Earl Lyons
+Tricky Hyson
+Laddie Arient
+Caitlyn Konoppa
+Ronald Marcewicz
+Brian Amonu
+Jason Sickmiller
+Charles Gantt
+Henry LeTouille ("le-twah")
+Darryl Issa
