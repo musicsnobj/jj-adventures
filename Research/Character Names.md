@@ -1,5 +1,5 @@
 
-Names of real people i encountered in the Navy, for character name inspiration...
+(mostly) names of real people i encountered in the Navy, for character name inspiration...
 
 David Spitler
 Socrates Perozo
@@ -56,9 +56,12 @@ Earl Lyons
 Tricky Hyson
 Laddie Arient
 Caitlyn Konoppa
-Ronald Marcewicz
+Ron Marcewicz
 Brian Amonu
 Jason Sickmiller
 Charles Gantt
 Henry LeTouille ("le-twah")
 Darryl Issa
+Shawn Glaves
+Jorge Campos
+
