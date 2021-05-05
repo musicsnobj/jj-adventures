@@ -16,3 +16,11 @@ maybe earp was a community college professor, nuclear engineering
 hurricane harvey
 hit texas
   texas might be a better setting for a tombstone story than florida
+  
+i keep coming back to earp being retired law enforcement, but that just seems too close to the real thing, and kind of an overused trope
+
+his background has to satisfy these conditions:
+1. He has advanced knowledge of nuclear fission, such that when he sees the unimpeachable evidence of what's happening, his intellect is put in direct conflict with his intuition
+2. He's a stalwart, not merely a resident, of MAGA country. When he first sounds the alarm, folks think he's gone out of his mind. But he's such a fixture in the community they have to give him an ear
+3. He has a few similarly skilled, also retired colleagues he can call in to help him save the town. They come at a moment's notice even knowing they're walking into a radiation hotbed. This is where the bromances could come in
+
