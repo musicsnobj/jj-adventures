@@ -25,6 +25,3 @@ his background has to satisfy these conditions:
 3. He has a few similarly skilled, also retired colleagues he can call in to help him save the town. They come at a moment's notice even knowing they're walking into a radiation hotbed. This is where the bromances could come in
 
 
-
-Instead of a submarine launching the nuke, I think a single stealth bomber would be way easier to conceal for longer.  Less people know about one random plane, plus remote detonation is accessible 
-

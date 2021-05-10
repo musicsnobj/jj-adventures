@@ -44,7 +44,7 @@ A driven hero must lead a group of allies to retrieve a prized possession throug
 [source](https://savethecat.com/out-of-the-bottle)
 A covetous hero must learn to undo a spell she wished for before it turns into a curse she can’t undo.
 
-Brave [https://www.youtube.com/watch?v=TEHWDA_6e3M]()
+[Brave](https://www.youtube.com/watch?v=TEHWDA_6e3M)
   
 
 ## Dude With A Problem
