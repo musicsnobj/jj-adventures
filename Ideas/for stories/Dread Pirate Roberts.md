@@ -11,3 +11,8 @@ and eventually the mysterious ryan takes power and he'll be the one we make the 
 then the whole next season westley's in charge with his own crew, but obviously the crew believes he is the one and only roberts so the name westley is never mentioned the whole season. maybe we follow him to various ports and in each episode he faces an enemy who he has to defeat with either his brains, his strength or his steel. obviously he'll have to be in a situation where he's badly tortured at some point (cuz of the smug statement he'll lay on the albino later on, "i can cope with torture"). we also watch the ladies fall all over him but he only has eyes for buttercup (and maybe we're following her rags to unwanted riches story as well).
 
 then at the end of the season he lands back in good old florin and gets the girl, and it's a big tv drama moment even though we all know what's gonna happen. then who's DPR next season? that's right: INDIGO MONTOYA!! who should totally be played by lord oberin from game of thrones!
+
+Siren bargain
+Missions for the King/Queen of Blank
+
+Could come up with some really fucking cool sea shanties 
