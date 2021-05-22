@@ -1,0 +1,1 @@
+character who's accepted their plight as an average person with average skills

@@ -1,4 +1,12 @@
-Stories are the virus. A small cable network, [[OAN]] can run a bogus story, a well-designed piece of propaganda goes straight to the heart. fills you with a sense of duty to get the word out to as many ppl as possible.
+
+## the lie
+The version of events that best reinforces my preferred narrative must be the truth
+
+## the lesson
+The right answer isn't always the one that feels good. Sometimes you have to turn off your intuitive judgments in order to truly follow the evidence.
+
+## examples
+A small cable network, [[OAN]] can run a bogus story, a well-designed piece of propaganda goes straight to the heart. fills you with a sense of duty to get the word out to as many ppl as possible.
 
 - It starts on social media, where it spreads like wildfire w/ no mechanism to extinguish it
 - It reaches a critical mass, and the story is large enough to get picked up by Fox News

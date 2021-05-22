@@ -1,3 +1,10 @@
+## the lie
+Adult group fantasy—i.e. *religion*—should be treated separately from silly childhood fantasy, as it promotes good moral behavior in its followers
+
+## the lesson
+Religion is just adults' expression of the same petty childhood notion of justice—victory over one's perceived enemies
+
+## examples
 The legend of old St Nicholas is useful to kids. in their minds he’s their one and only connection to toys other than their s___head parents. but that changes as they grow up and make money. having their own capacity to buy toys eliminates the need for Santa, so they grow up and abandon that silly kid nonsense.
 
 But a lot of us go on believing in God. In our minds he holds the fate of our immortal souls. That’s like the promise of all the toys in the afterlife. People fear death. Even more, we fear ceasing to exist. We don’t want to picture a universe that carries right on without us.

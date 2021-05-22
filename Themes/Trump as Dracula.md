@@ -1,4 +1,11 @@
-...or a Daniel Plainview (*There Will Be Blood*) type whose only aim is to conquer, subdue and drink the blood of his enemies.
+## the lie
+Other people don't matter. Only me and my desires/ambitions
+
+## the lesson
+None. Pretty sure the only arc that works for this theme is a flat one.
+
+## examples
+a Daniel Plainview (*There Will Be Blood*) type whose only aim is to conquer, subdue and drink the blood of his enemies.
 
 Almost like a [[Virus]] recruiting cells to do its bidding, Trump uses other ppl's skills to his advantage
 Trump exerts influence on the ppl around him, most of whom have knowledge + skills superior to his own

@@ -6,7 +6,7 @@ Every character is evaluated by three qualities:
 
 *competency* - how good are they at what they do?
 
-*activity* - how much do they persevere? do the effect the plot or does the plot effect them
+*activity* - how much do they persevere? do they effect the plot or does the plot effect them
 
 
 |                 | likability | competency | activity |

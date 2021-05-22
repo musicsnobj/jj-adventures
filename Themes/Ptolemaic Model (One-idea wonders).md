@@ -1,3 +1,14 @@
+## the lie
+When you're passionate about an idea, you should never let it go. Defend it at all costs.
+
+## the lesson
+```ad-quote
+Nothing is more dangerous than an idea when it is the only one you have.
+—Emile Chartier Alain
+```
+
+
+
 The Ptolemaic model is a great example of what happens when you only have one idea. Something you're just so certain has to be true, you'll bend the very laws of the universe to make it fit
 ![[ptolemaic-model.jpg]]
 
