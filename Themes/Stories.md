@@ -6,6 +6,12 @@ The version of events that best reinforces my preferred narrative must be the tr
 The right answer isn't always the one that feels good. Sometimes you have to turn off your intuitive judgments in order to truly follow the evidence.
 
 ## examples
+1) Hero holds in-group member to different standard of behavior than out-group member, i.e. whataboutism
+solution: show hero calling out an in-group member for bad behavior
+
+
+
+
 A small cable network, [[OAN]] can run a bogus story, a well-designed piece of propaganda goes straight to the heart. fills you with a sense of duty to get the word out to as many ppl as possible.
 
 - It starts on social media, where it spreads like wildfire w/ no mechanism to extinguish it

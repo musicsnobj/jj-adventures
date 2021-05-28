@@ -1,0 +1,1 @@
+A sociopathic right-wing reporter with an Trump-centric strategy to get to the top
