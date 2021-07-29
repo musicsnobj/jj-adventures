@@ -14,5 +14,6 @@ then at the end of the season he lands back in good old florin and gets the girl
 
 Siren bargain
 Missions for the King/Queen of Blank
+At one point someone who was presumed dead from a previous DPR crew comes upon current DPR and knows it isn't him.
 
 Could come up with some really fucking cool sea shanties 

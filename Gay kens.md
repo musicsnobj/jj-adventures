@@ -1,0 +1,1 @@
+1960s boy asks for two kens to secretly play out their ideal scenario

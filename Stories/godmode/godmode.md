@@ -199,7 +199,7 @@ it's true, everything's meaningless and nothing matters, including you. other pe
 ```
 
 maybe trump doesn't have to be trump after all
-he's just a president some ~30yrs down the road with a similarly unconventional rise to power
+he's just a president some ~30yrs down the road with a similarly unconventional rise to power ==I like this idea==
   but his appearance on the nat'l stage was truly a product of his competence
     maybe he's modeled after andrew yang
   he's smart, capable and intends to do right by the american ppl

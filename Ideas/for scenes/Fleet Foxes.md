@@ -14,4 +14,4 @@ _…song ends…_
 
   
 
-that’d be a cute scene
+that’d be a cute scene ==hell yah it would!  You could also use this concept in a political argument in another story==
