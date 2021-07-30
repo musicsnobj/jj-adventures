@@ -1,0 +1,1 @@
+Character invents time machine and goes throughout time killing people who will ultimately also invent time machines to prevent the concept from becoming weaponized or misused.
